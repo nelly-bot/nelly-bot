@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nelly-bot
 - 👀 I’m interested in proofreadind and editing also reading
 - 🌱 I’m currently learning how to dance
-- 💞️ I’m looking to collaborate on on so many cool things
+- 💞️ I’m looking to collaborate on so many cool projects
 - 📫 How to reach me igweuchechi92@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: ...
